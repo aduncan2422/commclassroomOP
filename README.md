@@ -1,4 +1,4 @@
-# Community Classroom is OP
+# Community Classroom is OP.
 
 - Kshitij Gaikwad says that this community is amazing.
 - Love the work which you are doing for the community.
