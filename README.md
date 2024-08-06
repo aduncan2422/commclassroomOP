@@ -1,5 +1,5 @@
 # Community Classroom is OP
 
-- Arkoprovo Datta says that this community is amazing.
-- More power to Arko. Love the work which you are doing for the community.
-- Finally learned Github
+- Hi If anyone reading this , You are doing amazing 
+- If you feel like you can't do something get some hugs from your parents , siblings , bff 
+- you'll feel alright
